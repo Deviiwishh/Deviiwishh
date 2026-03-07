@@ -1,6 +1,5 @@
  Welcome to my profile! ✧ . .〰︎ ིྀ
-https://pin.it/1CXI0tn9M
-<!--
+
 **Deviiwishh/Deviiwishh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
