@@ -18,4 +18,5 @@ ok what, I love babymetal too it's a trio metal band that make very amazing musi
 proshippers, darkshippers, weird people, racists,homophobics, pedophiles,
 I really don't want these people interacting with me. They creep me out and they're disgusting. 
 
+7be2a65004e4f823573b03bc9480fe0a.jpg
 
