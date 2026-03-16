@@ -15,7 +15,8 @@ I like watching bfdi it's a very cool object show for those who don't know, I re
 
 ILOVEBABYMETALSOMUCHOMGWHATAMAZINGBANDOMGOMG
 ok what, I love babymetal too it's a trio metal band that make very amazing musics ok?
-(https://github.com/Deviiwishh/Deviiwishh/blob/main/95ae69e6187caa011dfccded28e8ee52.gif?raw=true). 
+(https://github.com/Deviiwishh/Deviiwishh/blob/main/bb19117b694b1968a5a75a015aebd307.gif?raw=true)
+
 # DNI / Do Not Interact
 
 proshippers, darkshippers, weird people, racists,homophobics, pedophiles,
