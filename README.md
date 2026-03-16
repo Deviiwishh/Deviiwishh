@@ -18,8 +18,7 @@ ok what, I love babymetal too it's a trio metal band that make very amazing musi
 ![](https://github.com/Deviiwishh/Deviiwishh/blob/main/95ae69e6187caa011dfccded28e8ee52.gif?raw=true)
 
 
-# DNI / Do Not Interacthttps://github-production-user-asset-6210df.s3.amazonaws.com/252606164/553035482-6d1b6377-ec8b-4f37-b2bb-3b6c7f84cd4f.gif?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=AKIAVCODYLSA53PQK4ZA%2F20260316%2Fus-east-1%2Fs3%2Faws4_request&X-Amz-Date=20260316T190820Z&X-Amz-Expires=300&X-Amz-Signature=05c2553a53c262c5656e6f85e662a464262f642b500c247b3b81471616244898&X-Amz-SignedHeaders=host
-
+# DNI / Do Not Interact
 proshippers, darkshippers, weird people, racists,homophobics, pedophiles,
 I really don't want these people interacting with me. They creep me out and they're disgusting.
 
