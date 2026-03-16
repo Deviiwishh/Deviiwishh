@@ -22,3 +22,10 @@ ok what, I love babymetal too it's a trio metal band that make very amazing musi
 
 proshippers, darkshippers, weird people, racists,homophobics, pedophiles,
 I really don't want these people interacting with me. They creep me out and they're disgusting.
+
+# Others things
+
+I definitely allow you to C+H with me in pony town and interact too!(unless it has dni, dniuf). 
+do not copy my skins 
+I don't allow people to do that in any case you find someone copying me please contact me. 
+
