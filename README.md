@@ -29,3 +29,9 @@ I definitely allow you to C+H with me in pony town and interact too!(unless it h
 do not copy my skins 
 I don't allow people to do that in any case you find someone copying me please contact me. 
 
+![](https://github.com/Deviiwishh/Deviiwishh/blob/main/22f75d0f717f56e7db176309139f9497.gif?raw=true)
+
+# Finish :P
+
+thank you for reading this 
+I really appreciate people interested in reading this♡⸜(ˆᗜˆ˵ )⸝♡
