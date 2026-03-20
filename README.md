@@ -9,7 +9,8 @@ I am kinda anti social so pls don't mind if i don't talk much :/
 # my interests  ִֶָ. ..𓂃 ࣪ ִֶָ🦋་༘࿐
 I like watching bfdi it's a very cool object show for those who don't know, I recommend watching it especially if you like reality shows with talking objects 👀
 
-![](https://github.com/Deviiwishh/Deviiwishh/blob/main/bb19117b694b1968a5a75a015aebd307.gif?raw=true)
+![](https://github.com/Deviiwishh/Deviiwishh/blob/main/9fd6be83bc691d3c32f91de31486428e.gif?raw=true)
+
 
 ────୨ৎ────
 
