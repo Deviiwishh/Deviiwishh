@@ -1,37 +1,19 @@
-Welcome to my profile! ✧ . .〰︎ ིྀ
-# A little bit about me!! ^^  
- .✦ ݁˖ hi im devi I like seals,my grandma and my family
-and I love my friends so much ^_^˚˖𓍢ִ໋❀
-I am kinda anti social so pls don't mind if i don't talk much :/
+# My description
 
-![Minha foto de perfil](https://github.com/Deviiwishh/Deviiwishh/blob/main/7be2a65004e4f823573b03bc9480fe0a.jpg?raw=true)
+hello my name is deviiwishh 
+I love interacting with friends and making friends (i don't talk much because i don't talk very much online) 
 
-# my interests  ִֶָ. ..𓂃 ࣪ ִֶָ🦋་༘࿐
-I like watching bfdi it's a very cool object show for those who don't know, I recommend watching it especially if you like reality shows with talking objects 👀
+# My interests
 
-![](https://github.com/Deviiwishh/Deviiwishh/blob/main/9fd6be83bc691d3c32f91de31486428e.gif?raw=true)
+ I love bfdi, playing games, drawings
+ here are some fandoms i know:
+ bfdi, project sekai, regretevator, poppy playtime, cookie run kingdom/ovenbreak
+ and many other things^^
 
+ # DNI/DO NOT INTERACT
+ Darkshippers proshippers, comshipper, racists, (might add more btw) 
 
-────୨ৎ────
-
-ILOVEBABYMETALSOMUCHOMGWHATAMAZINGBANDOMGOMG
-ok what, I love babymetal too it's a trio metal band that make very amazing musics ok?
-![](https://github.com/Deviiwishh/Deviiwishh/blob/main/95ae69e6187caa011dfccded28e8ee52.gif?raw=true)
-
-
-# DNI / Do Not Interact
-proshippers, darkshippers, weird people, racists,homophobics, pedophiles,
-I really don't want these people interacting with me. They creep me out and they're disgusting.
-
-# Others things
-
-I definitely allow you to C+H with me in pony town and interact too!(unless it has dni, dniuf). 
-do not copy my skins 
-I don't allow people to do that in any case you find someone copying me please contact me. 
-
-![](https://github.com/Deviiwishh/Deviiwishh/blob/main/22f75d0f717f56e7db176309139f9497.gif?raw=true)
-
-# Finish :P
-
-thank you for reading this 
-I really appreciate people interested in reading this♡⸜(ˆᗜˆ˵ )⸝♡
+ # finish
+ thanks for reading this! 
+ this is still a work in progress 
+ because I'm too lazy to finish this
