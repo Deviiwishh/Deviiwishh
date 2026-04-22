@@ -3,6 +3,10 @@
 hello my name is deviiwishh 
 I love interacting with friends and making friends (i don't talk much because i don't talk very much online) 
 
+
+![3iJzwR42Y](./imagem.png)
+
+
 # My interests
 
  I love bfdi, playing games, drawings
